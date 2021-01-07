@@ -1,0 +1,1 @@
+Peel the banana and grind it and add milk,sugar and choco powder.
